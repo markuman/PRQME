@@ -1,1 +1,1 @@
-bye bye microsoft. please visit https://git.osuv.de/m/markuman/PRQME
+bye bye microsoft. please visit https://git.osuv.de/m/PRQME
